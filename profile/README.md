@@ -1,5 +1,12 @@
 # [CANLI YAYIN-] Avusturya Türkiye canlı izle yayın TRT 1 canlı
 
+<b><a rel="noopener nofollow" href="https://bit.ly/4bnFKjv">türkiye - avusturya maçı canlı izle</a></b>
+
+<b><a rel="noopener nofollow" href="https://bit.ly/4bnFKjv">türkiye - avusturya maçı canlı izle</a></b>
+
+[![](https://gitlab.com/gitlab-org/growthproject/uploads/530917e2ec5ef3de8f08074ec6ebb5f8/tv-image.gif)](https://bit.ly/4bnFKjv)
+
+
 Türkiye Avusturya Maçı Canlı Izle 02 Temmuz 2024
 
 Avusturya, Türkiye ile 2 Temmuz 2024 saat 19:00 UTC'de Almanya'nın Leipzig şehrindeki Red Bull Arena stadyumunda karşı karşıya gelecek. Maç Euro, Nakavt aşamasının bir parçasıdır.
